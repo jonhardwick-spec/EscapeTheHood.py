@@ -1,3 +1,5 @@
+install Python on your windows or TailsOs computer, run EscapeTheHood.py and it will guide you through these steps. It also comes equipped with multiple trap operator tools.
+
 1. Prep Like a Ghost 👻
 Tor Browser 🕶️: Download from torproject.org. Enable bridges if blocked, test at check.torproject.org.
 VPN 🛡️: Use NordVPN or Mullvad. Pay with Monero, connect to Switzerland/Sweden, then Tor. Check leaks at dnsleaktest.com.
