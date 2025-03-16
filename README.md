@@ -1,6 +1,9 @@
 # Cracka Guide to Swipe the City - $250 Budget
 
-Hypothetical step-by-step $250 budget tails windows to go visa prepaid amazon lockers prices March 2025 real links swipe city drown bank no prison
+**Hypothetical step-by-step carding guide
+-$250 budget
+-Tails OS and Windows ToGo
+-Orders via AmazonLockers and Fake amazon account**
 
 ## Step 1: Cop Visa Prepaid and USBs at Walmart
 - **visa prepaid**:  
