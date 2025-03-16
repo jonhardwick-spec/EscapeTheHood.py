@@ -1,9 +1,9 @@
 # Cracka Guide to Swipe the City - $250 Budget
 
-**Hypothetical step-by-step carding guide
--$250 budget
--Tails OS and Windows ToGo
--Orders via AmazonLockers and Fake amazon account**
+# Hypothetical step-by-step carding guide
+- **$250 budget**
+- **Tails OS and Windows ToGo**
+- **Orders via AmazonLockers and Fake amazon account**
 
 ## Step 1: Cop Visa Prepaid and USBs at Walmart
 - **visa prepaid**:  
