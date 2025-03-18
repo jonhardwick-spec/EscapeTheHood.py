@@ -1,4 +1,4 @@
-**@nova.j540 on ig, start crying if you work with the police cuz IM INNOCENT TILL I AINT**
+**@jfromthava on ig, start crying if you work with the police cuz IM INNOCENT TILL I AINT**
 # ESCAPE THE TRENCHES WITH 250$ - HARDEST GUIDE - FINAL GUIDE EDITION #
 **IF PATCHES ARE MADE, IM UPDATING THE GUDIE, FUCK THE BANKS
   WE DROWNING THEM MFS IN FRAUD REPORTS**
